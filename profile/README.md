@@ -1,4 +1,4 @@
-# Show Code LLC
+# Show Code Corp
 
 Please visit https://showcode.co to learn more about what we do. 
 
